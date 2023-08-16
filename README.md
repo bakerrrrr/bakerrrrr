@@ -1,1 +1,1 @@
-Hello I'm @bakerrrrr, student at Byjusfutureschool!
+Hello I'm @bakerrrrr, an ex-student of Byjusfutureschool.
